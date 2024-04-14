@@ -10,3 +10,6 @@ going to -> gonna
 
 your -> yer
 - [10 Reductions for Natural English Pronunciation](https://www.youtube.com/watch?v=88mANqggaBk)
+
+our -> r
+- [10 Reductions for Natural English Pronunciation](https://www.youtube.com/watch?v=88mANqggaBk)
